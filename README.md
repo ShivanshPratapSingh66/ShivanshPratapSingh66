@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://shivanshpratapsingh66.github.io/Portfolio/](https://shivanshpratapsingh66.github.io/Portfolio/)
 
-- 📫 How to reach me </br>**shivansh.pratap.singh8736@gmail.com**
+- 📫 How to reach me </br>**kunwarshiv999@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
